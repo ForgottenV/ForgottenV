@@ -1,7 +1,4 @@
-- 👋 Hi, I’m @ForgottenV [Owner of Undefined MC]
-- 🌱 I’m currently learning Java
-- 💞️ I’m looking for either Devs and or Team members for Minecraft and Garrys Mod
-- 📫 How to reach me.
+Sam thinks he funny
 Discord | Forgotten#9282
 
 <!---
