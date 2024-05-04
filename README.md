@@ -1,5 +1,5 @@
-Sam thinks he funny
-Discord | Forgotten#9282
+Director | Founder Imperius Networks
+Discord | forgottenv
 
 <!---
 ForgottenV/ForgottenV is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
